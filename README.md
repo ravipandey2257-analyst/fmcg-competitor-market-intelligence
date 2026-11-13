@@ -1,0 +1,1 @@
+# fmcg-competitor-market-intelligence
